@@ -2,8 +2,6 @@
 
 Olá, mundo! 
 
-Não sei como me apresentar aqui, então... 
-
 oi, tudo bem? 
 
 ---
