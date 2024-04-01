@@ -1,15 +1,15 @@
-im no learn about this site! can you help me?
+im learning about this site! can you help me?
 ---
 ---
 ---
-- 👋 Hi, I’m @unnamed-orbert
+- 👋 Hi, I’m @unnamed-orbert -
 ---
 ---
-"Olá, mundo!" 
+"Olá, mundo!" ~ "Hello, World!" 
 ---
 -----------
 -----
-oi, tudo bem? 
+Oi, tudo bem? ~ Hi, nice to meet you? 
 Será que um dia irei aprender a programa? nunca poderei dizer...
 --------------
 ---
